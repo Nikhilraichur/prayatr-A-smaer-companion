@@ -1,1 +1,1 @@
-# prayatr-A-smaer-companion
+# prayatr-A-smart-companion
